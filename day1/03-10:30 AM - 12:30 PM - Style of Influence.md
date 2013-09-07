@@ -1,1 +1,1 @@
-Style of Influence - James Roberts
+(SoI) James Roberts
