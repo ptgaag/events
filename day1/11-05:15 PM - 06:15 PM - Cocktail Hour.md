@@ -1,1 +1,1 @@
-Cocktail Hour - The Pavilion
+The Pavilion
