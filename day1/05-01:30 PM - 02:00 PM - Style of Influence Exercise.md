@@ -1,1 +1,1 @@
-Style of Influence Exercise - All Teams
+SOI Exercise - All Teams
