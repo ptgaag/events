@@ -1,1 +1,1 @@
-Release Planning Exercise - All Teams
+All Teams
