@@ -1,1 +1,1 @@
-Chill With Jill - Jill Ward
+Jill Ward
